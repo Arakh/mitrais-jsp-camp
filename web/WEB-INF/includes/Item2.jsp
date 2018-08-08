@@ -1,0 +1,1 @@
+Luhut mengungkap pertemuannya dengan TGB pada Senin (9/7) malam itu. Ia menyampaikan hal itu saat mengomentari soal TGB yang akan dijatuhi sanksi Partai Demokrat setelah menyatakan mendukung Jokowi menjadi presiden dua periode

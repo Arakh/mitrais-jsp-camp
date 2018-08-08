@@ -1,0 +1,1 @@
+Hal itu diketahui ketika Gubernur Jawa Tengah, Ganjar Pranowo melakukan inspeksi mendadak ke kantor Dinas Pendidikan Provinsi Jawa Tengah. Diketahui, 78.065 pendaftar di SMA dan SMK se-Jateng. Semuanya telah dicoret.
